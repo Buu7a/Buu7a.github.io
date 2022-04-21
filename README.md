@@ -1,2 +1,2 @@
-﻿jebać pis
+Zadanie do szkoły 
 
